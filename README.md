@@ -1,2 +1,2 @@
 # hello-world
-first repository
+pucana dranca, romelsac uyvars cmucnaoba
